@@ -8,6 +8,10 @@
 
 **Caio Pereira De Paula** — RA: 79630
 
+**Victor Milu** — RA: 51917
+
+**Igor Alves Cardoso** — RA: 79630
+
 ---
 
 ## 📘 Descrição
